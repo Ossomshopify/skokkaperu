@@ -12,3 +12,4 @@ Rehabilitación física: Las kinesiólogas son especialistas en diseñar program
 Terapia manual: A través de diversas técnicas manuales, las kinesiólogas trabajan sobre los músculos y articulaciones para aliviar tensiones, mejorar la circulación y reducir el dolor. Estas terapias son especialmente útiles en pacientes con dolor crónico o afecciones musculoesqueléticas.
 
 Terapia deportiva: Arequipa es una ciudad donde el deporte ocupa un lugar importante en la vida de muchas personas. Las kinesiólogas ofrecen tratamientos especializados para deportistas, desde la prevención de lesiones hasta la recuperación después de un esfuerzo físico intenso. Además, brindan asesoría sobre cómo mejorar el rendimiento deportivo y evitar futuras lesiones.
+https://www.skokka.com.pe/kinesiologas/arequipa-a/
